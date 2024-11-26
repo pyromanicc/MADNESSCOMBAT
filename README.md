@@ -21,7 +21,7 @@
 
 
 ╰─ 🫀  • i love all my friends dearly. they are some of the *BEST* people i've had the pleasure of meeting and every time we talk i smile and kick my feet.
-ugly drowned silver kids , the contract , hhm , the lunchbox , i love you fucking freaks so much. dont die please.
+stink butts, ugly drowned silver kids , the contract , hhm , the lunchbox , i love you fucking freaks so much. dont die please.
 
 
 ![who](https://github.com/user-attachments/assets/def1d9f6-898c-4553-aa52-5c82d04ddff7)
